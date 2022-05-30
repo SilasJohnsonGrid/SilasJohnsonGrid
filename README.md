@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi I am Silas Johnson and it is a pleasure to meet you(:
 
 <!--
 **SilasJohnsonGrid/SilasJohnsonGrid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
